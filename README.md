@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing.
 - 📫 How to reach me FB: https://www.facebook.com/profile.php?id=100070234933029
 - 😄 Pronouns: Im Soo Funny.
-- ⚡ Fun fact: Im a student of class 9, and also a indi Game Developer.
+- ⚡ Fun fact: Im a student of class 9, and also a indie Game Developer.
 
 <!---
 Aroy-Raj/Aroy-Raj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
